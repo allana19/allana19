@@ -2,7 +2,7 @@
 
 **`Estudante de Sistemas de Informação`**
 
-Me chamo Allana Cristini Bolsoni, tenho 20 anos e sou natural de Joinville em Santa Catarina.
+Me chamo Allana Cristini Bolsoni, tenho 20 anos e sou natural de Santa Catarina.
 Atualmente, estou cursando bacharelado em Sistemas de Informação na UNIVILLE e me encontro adorando conhecer mais sobre
 tecnologia. Possuo grande apreço pela área de engenharia de dados e estou fazendo, através da plataforma da Alura, o curso
 de carreira dessa área.
