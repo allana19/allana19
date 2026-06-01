@@ -1,6 +1,6 @@
 ## (～￣▽￣)～ allanaCris
 
-**`Estudante de Sistema de Informação`**
+**`Estudante de Sistemas de Informação`**
 
 Me chamo Allana Cristini Bolsoni, tenho 20 anos e sou natural de Joinville em Santa Catarina.
 Atualmente, estou cursando bacharelado em Sistemas de Informação na UNIVILLE e me encontro adorando conhecer mais sobre
