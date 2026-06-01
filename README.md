@@ -8,4 +8,4 @@ tecnologia. Possuo grande apreço pela área de engenharia de dados e estou faze
 de carreira dessa área.
 Estou ansiosa para moldar meu caminho no mundo tec e compartilhar minha tragetória por aqui 😸.
 
-Meu perfil no [Linkedin](www.linkedin.com/in/allana-cristini-bolsoni-16787a238)
+Meu perfil no [Linkedin](https://www.linkedin.com/in/allana-cristini-bolsoni-16787a238/)
